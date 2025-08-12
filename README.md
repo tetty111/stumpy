@@ -4,7 +4,7 @@ This repo is named in honor of an old football mate—affectionately known as *S
 
 This space is a tribute to friendship, banter, and the joy of learning something new—no matter how small you start.
 
-Atribute to stumpy.
+Atribute to Stumpy.
 
 
 
